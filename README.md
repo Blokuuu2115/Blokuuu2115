@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @Blokuuu2115
-- 💼 Projects: DC.BLAZEHUB.EU | DC.FUNHC.EU
+- 💼 Projects: DC.BLAZETOP.PL
 - 📫 How to reach me -> Discord: Blokuuu2115_#0094
